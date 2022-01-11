@@ -1,6 +1,7 @@
 [![Nolans's GitHub stats](https://github-readme-stats.vercel.app/api?username=nnnolan)](https://github.com/anuraghazra/github-readme-stats)
 
 nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D
+
 junior @ smithville high school
 
 <!---
