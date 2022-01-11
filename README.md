@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @nnnolan
-- 👀 I’m interested in ... software deveolopment
-- 🌱 I’m currently learning ... technology solution through Northland CAPS
-- 💞️ I’m looking to collaborate on ... anything that interests me :)
-- 📫 How to reach me ... nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D
+[![Nolans's GitHub stats](https://github-readme-stats.vercel.app/api?username=nnnolan)](https://github.com/anuraghazra/github-readme-stats)
+
+nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D
 
 <!---
 nnnolan/nnnolan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
