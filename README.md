@@ -1,5 +1,5 @@
 
-<div style="text-align: right"> nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D </div>
+ nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D 
 
 
 intern @ ugafinance 
