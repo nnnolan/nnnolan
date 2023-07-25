@@ -1,5 +1,5 @@
 
- nolan.pestano@northlandcaps.org / @nolanpestano on twitter :D 
+(https://nolanpestano.me) | pestnaonolan@gmail.com | @nolanpestano on twitter :D 
 
 
 intern @ ugafinance 
