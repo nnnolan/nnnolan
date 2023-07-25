@@ -1,5 +1,5 @@
 
-(https://nolanpestano.me) | pestnaonolan@gmail.com | @nolanpestano on twitter :D 
+https://nolanpestano.me | pestanonolan@gmail.com | @nolanpestano on twitter :D 
 
 
 intern @ ugafinance 
