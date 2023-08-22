@@ -2,10 +2,10 @@
 https://nolanpestano.me | pestanonolan@gmail.com | @nolanpestano on twitter :D 
 
 
-intern @ ugafinance 
+former intern @ ugafinance 
 
 
-senior @ smithville high school
+freshman @ univeristy of missouri columbia school of computer science 
 
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=dingledong2&cover_image=true&theme=default&show_offline=true&background_color=786d6d&bar_color_cover=true)](https://spotify-github-profile.vercel.app/api/view?uid=dingledong2&redirect=true)
 <!---
