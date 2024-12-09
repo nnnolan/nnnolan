@@ -1,6 +1,6 @@
 nolan :-)
 
- ### **im looking for internships for the summer of '25!!** please reach out if you have an opportunity :) 
+ ### ~~**im looking for internships for the summer of '25!!** please reach out if you have an opportunity :)~~ I am happy to share I have accepted a co-op role with Emerson! I will be on the automation team come January.
 
 former intern working with data & automation @ uga finance 
 
