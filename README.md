@@ -1,4 +1,4 @@
-nolan :-)
+nolan :-) ![](https://komarev.com/ghpvc/?username=nnnolan&color=2AAA8A)
 
 current automation co-op @ emerson! marshalltown ia :D 
 
