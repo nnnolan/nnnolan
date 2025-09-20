@@ -4,7 +4,7 @@ current automation co-op @ emerson! marshalltown ia :D
 
 former intern working with data & automation @ uga finance 
 
-current sophmore @ university of missouri, school of computer science
+current junior @ university of missouri, school of computer science
 
 full time hobbyist, chiller, destroyer of rock walls, and pursuer of life
 
