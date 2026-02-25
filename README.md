@@ -1,6 +1,6 @@
 nolan :-) 
 
-current automation co-op @ emerson! marshalltown ia :D 
+most rececntly a co-op @ emerson! marshalltown ia :D 
 
 former intern working with data & automation @ uga finance 
 
