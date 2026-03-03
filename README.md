@@ -1,5 +1,7 @@
 nolan :-) 
 
+soon to be data automation intern @ us foods!
+
 most rececntly a co-op @ emerson! marshalltown ia :D 
 
 former intern working with data & automation @ uga finance 
