@@ -1,6 +1,6 @@
 nolan :-) 
 
-soon to be data automation intern @ us foods!
+soon to be qa intern @ us foods!
 
 most rececntly a co-op @ emerson! marshalltown ia :D 
 
