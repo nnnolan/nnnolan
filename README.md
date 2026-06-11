@@ -1,12 +1,12 @@
 nolan :-) 
 
-soon to be qa intern @ us foods!
+qa engineer intern @ us foods in rosemont il!
 
-most rececntly a co-op @ emerson! marshalltown ia :D 
+rececntly a co-op @ emerson! marshalltown ia :D 
 
 former intern working with data & automation @ uga finance 
 
-current junior @ university of missouri, school of computer science
+rising senior @ university of missouri, school of computer science
 
 full time hobbyist, chiller, destroyer of rock walls, and pursuer of life
 
